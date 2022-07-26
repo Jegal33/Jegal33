@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jegal33
-- 👀 I’m interested in ... xd
+- 👀 I’m interested in tech 
 - 🌱 I’m currently learning ... xd
 - 💞️ I’m looking to collaborate on ... xd
 - 📫 How to reach me ... xd
